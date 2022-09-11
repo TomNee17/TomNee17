@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TomNee17
 - 👀 I’m interested in football
 - 🌱 I’m currently learning Hutech
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m dating.
 - 📫 How to reach me [face](https://www.facebook.com/Tomnee.27)
 -                         [gmail] (nhokthai.tt@gmail.com)
 <!---
